@@ -2,7 +2,7 @@
 - 👀 I’m interested in building protfolios,websites
 - 🌱 I’m currently learning how to build and lunch my own protfolio
 - 💞️ I’m looking for guidance to gain insights of web development as im newbie but I've intermediate coding knowledge
-- 📫 you can reach me on instagram- @akira_grace5 or mail me :@narutoshikamarunara6388
+- 📫 you can reach me on instagram- @akira_grace5 or mail me :narutoshikamarunara6388@gamil.com
 
 
 <!---
